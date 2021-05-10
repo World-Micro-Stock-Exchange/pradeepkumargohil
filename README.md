@@ -1,0 +1,2 @@
+# pradeepkumargohil
+We need GitHub, Microsoft will help joint venture startup World Micro Stock Exchange a development making  proof of Concept big data SQL ASP.Net non-stop pre-IPO global listing of daily profit sharing exchange will run zero risk ROI micro shareholding value proposition  tender bid &amp; MassOthon CRM, SaaS , licences for every kind of finance-related demand &amp; supply needy/applies will purchase/downloading/partnership B2B, B2C,and B2G will opening at every big stock exchange 
